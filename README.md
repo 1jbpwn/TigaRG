@@ -5,4 +5,4 @@ For IOS 11.0 - 11.0.3
 
 By Tigris Dev Team And The Crew
 
-MHarris , Cheeswcakeufo , Fcukboi and More!
+MHarris , Fcukboi and More!
