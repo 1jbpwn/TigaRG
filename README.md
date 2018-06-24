@@ -1,8 +1,10 @@
-# TigaRG (11.0 Jailbreak)
+# TigaRG (10.3 Jailbreak)
 This is a private Jailbreak to all that deserve it.
 
-For IOS 10.3.1 to idk
+For IOS 10.3
 
-By Tigris Dev Team And The Crew
+A fucked up jailbreak to all that wants to fix it
+Ded by oceanboi
 
-MHarris , Fcukboi and More!
+Hwbrbfjenrjnfjrbruueuejsusjwhshahshhshehwushhsuwjshsususussuusushshsusushshshhshzhshshehshshhsjshshwjznunjmwowlfpwppa
+
